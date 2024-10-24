@@ -1,4 +1,4 @@
-### Hi 👋   <img align="right" alt="Iromi" src= "https://media.licdn.com/dms/image/D4E16AQGtZWbsvC7aAA/profile-displaybackgroundimage-shrink_350_1400/0/1664033795874?e=1690416000&v=beta&t=oyadlJxAdUWuJr_GT4HqDPxwuQMocx7B7gXfik35RN4" height = 240 width = 450/>
+### Hi 👋  
 
 I'm Iromi Bravo ✨    
 
